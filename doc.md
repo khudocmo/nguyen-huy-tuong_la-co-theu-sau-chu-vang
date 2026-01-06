@@ -282,7 +282,9 @@ Hoài Văn dẫn chú đến chỗ tập bắn, rồi đeo cung tên nhảy lên
 
 -- Cháu bắn đã khá, chú mừng cho cháu. Nhưng cháu phải luyện tập nữa mới đánh giặc được. Cháu xem chú bắn đây này.
 
-Vương nhảy phắt lên ngựa, chạy xa hơn Trần Quốc Toản. Vương vẫn phóng ngựa, không xoay mình, chỉ quay đầu lại, giương cung lắp tên. Mũi tên bắn trúng và mạnh đến nỗi những mũi tên của Trần Quốc Toản cắm vào hồng tâm đều rơi xuống đất. Khi Vương quay ngựa trở lại, mọi người đều lạy rạp, bái phục tài bắn của Vương. Vương bảo Hoài Văn: - Chú mong cháu khôn lớn, trở thành người tôi hiền tướng giỏi. Nhưng nay cháu còn nhỏ, chưa lượng sức mình mà cứ đi đánh giặc, thì e rằng sẽ chuốc lấy cái hại vào mình. Chú nói thế để cháu biết bụng chú.
+Vương nhảy phắt lên ngựa, chạy xa hơn Trần Quốc Toản. Vương vẫn phóng ngựa, không xoay mình, chỉ quay đầu lại, giương cung lắp tên. Mũi tên bắn trúng và mạnh đến nỗi những mũi tên của Trần Quốc Toản cắm vào hồng tâm đều rơi xuống đất. Khi Vương quay ngựa trở lại, mọi người đều lạy rạp, bái phục tài bắn của Vương. Vương bảo Hoài Văn:
+
+--  Chú mong cháu khôn lớn, trở thành người tôi hiền tướng giỏi. Nhưng nay cháu còn nhỏ, chưa lượng sức mình mà cứ đi đánh giặc, thì e rằng sẽ chuốc lấy cái hại vào mình. Chú nói thế để cháu biết bụng chú.
 
 Vương lại bảo người tướng già:
 
@@ -1032,7 +1034,9 @@ Chiêu Văn nhìn trăng nhìn nước, vừa cười vừa nói:
 
 -- Thật là cẩm tú giang sơn. Tưởng như chú cháu ta chèo thuyền quế ngắm trăng để di dưỡng tính tình. Có ngờ đâu đêm nay, chú cháu ta đang chờ giặc nước.
 
-Nhật Duật phe phẩy quạt, say sưa ngắm cảnh vật huyền huyền ảo ảo: - Cơ đồ này há lại để vào tay kẻ khác ư?
+Nhật Duật phe phẩy quạt, say sưa ngắm cảnh vật huyền huyền ảo ảo:
+
+--  Cơ đồ này há lại để vào tay kẻ khác ư?
 
 Vương rung đùi, khẽ đọc một bài thơ của Lý Bạch. Hoài Văn xao xuyến trong lòng. Chàng vui khấp khởi. Chàng sắp được đánh một trận lớn đầu tiên trong đời. Sung sướng hơn nữa, chàng đã được Chiêu Văn Vương cử làm tướng tiên phong. Ngày mai, Hoài Văn sẽ dẫn một đoàn thuyền xuôi xuống hạ lưu. Chàng sẽ là người đương đầu với viên tướng tài giỏi nhất của nhà Nguyên, và phải dử Toa Đô tới cửa Hàm Tử này để cho bốn mặt chiến thuyền của ta đổ ra mà đánh. Chàng nhìn vị hoàng thúc khăn áo chỉnh tề, thanh nhã như một thư sinh. Hoài Văn thầm phục người chủ tướng, mà chàng chưa bao giờ thấy hoang mang, nóng nảy. Hoài Văn lễ phép thưa:
 
